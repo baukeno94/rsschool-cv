@@ -1,1 +1,1 @@
-# rsschool-cv
+https://baukeno94.github.io/rsschool-cv/
